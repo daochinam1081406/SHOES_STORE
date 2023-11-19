@@ -1,1 +1,0 @@
-# SHOES_STORE
